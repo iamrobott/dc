@@ -2,5 +2,5 @@
 
 ![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExcGo1N3BwejFoemRtZGZlYmZ5bngyZnlhc3RnYTFvbzU5MmlsZnNtdSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/UZQCbV4OW1mXdHJNPS/giphy.gif)
 
-![](https://tenor.com/en-GB/view/homer-simpson-computer-operator-error-gif-11140134)
+![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExOGpiemlsZHFsMW1kcHMxbWc1cHJ5aWhiaXNwem4ybTBucnE3bWd5YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/26BGIqWh2R1fi6JDa/giphy.gif)
 
